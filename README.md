@@ -1,0 +1,1 @@
+# Tlekbay-Roza-Aisha-Satybay-Shugyla-Mussina
